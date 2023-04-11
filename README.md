@@ -20,11 +20,15 @@ Me pueden encontrar en LinkedIn como Matias Agustin Kuttel para mayor informacio
 You can find me in LinkedIn like Matias Agustin Kuttel for more information about my professional development.
 
 Tambien pueden contactarme a traves de:
+
 Email: lejesterdelacorte@gmail.com
+
 Instagram: matikutt
 
 You can contact me through:
+
 Email: lejesterdelacorte@gmail.com
+
 Instagram: matikutt
 
 ¡Gracias por visitar mi perfil! / Thank you for visiting my profile!
